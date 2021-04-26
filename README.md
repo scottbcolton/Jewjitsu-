@@ -1,2 +1,2 @@
 # Jewjitsu-
-Breaking necks and cashing checks 
+Crispy code coming soon 
